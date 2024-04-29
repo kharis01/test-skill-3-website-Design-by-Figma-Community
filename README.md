@@ -1,0 +1,1 @@
+website ini telah selesai (tanpa rensponsive) dibuat pada 4/26/2024 pada jam 9.00 | aku beri nilai 7/10 | untuk kesalahan akan segera diperbaiki secepatnya
